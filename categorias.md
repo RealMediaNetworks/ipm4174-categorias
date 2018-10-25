@@ -1,6 +1,9 @@
 Accesorios y Carteras
+
 Tiendas especializadas
+
 Automotoras
+
 Bancos y pagos
 Belleza
 Cafetería, Heladería, Pastelería
